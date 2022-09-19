@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @0xemma1024
+- 👀 I’m interested in PC
